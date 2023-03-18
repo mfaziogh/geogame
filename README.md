@@ -1,0 +1,1 @@
+Game for educational purposes on geography
